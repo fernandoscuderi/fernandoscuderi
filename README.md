@@ -27,5 +27,3 @@ Actualmente estudiante de la Tecnicatura Superior en Ciencia de datos e intelige
 Siempre estoy abierto a nuevas oportunidades de colaboración y aprendizaje.
 
 ¡Gracias por visitar mi perfil!
-
-[LinkedIn](https://www.linkedin.com/in/tu-perfil-de-linkedin)
